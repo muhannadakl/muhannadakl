@@ -11,4 +11,9 @@ Accountant-turned-Data Analyst | 4+ years financial experience | Google & IBM ce
 🔹 [More Projects to Come]
 
 ## 📫 Contact
-[linkedin] | [Email]
+
+Muhannad Akl
+
+Emial: [mohannadakl82@gmail.com]
+
+LinkedIn: [https://www.linkedin.com/in/muhannad-akl]
